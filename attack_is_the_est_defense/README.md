@@ -1,0 +1,1 @@
+attack equals best defense
